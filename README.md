@@ -12,7 +12,8 @@ meu nome é maria eduarda
  
  @duda_cvw
 
-![]( https://tenor.com/pt-BR/view/peppa-funny-nsdcpwein-gif-25090710)
+![](https://media1.tenor.com/m/aisOGZx72_EAAAAC/frozen-pb.gif)
+
  
 
 
